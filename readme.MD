@@ -1,0 +1,1 @@
+Random Words is inspired in Life After God and Shampoo Planet, by Douglas Coupland
